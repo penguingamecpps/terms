@@ -8,5 +8,6 @@ NO CHEATING, this game may have exploits and backdoors but that doesnt give you 
 -------------
 # 3
 To play this game you **MUST** be 13 or older. Sure this may be coded off of an old kids game but older people come here for the nostalgia and more immature people could just ruin that (pookies, mumus, and dadas get out of here **NOW**)
+-------------
 Failure to follow these terms may result in a ban for each offence.
 
